@@ -1,9 +1,6 @@
 ### FREE ROBUX!!! [CLICK HERE!!!](https://youtu.be/xvFZjo5PgG0?si=0gsSZ0wmVIJqtkNX)
-# mó fita isso ai
- - se, eu não conseguir dormir
- - não é cafeina
- - é culpa da morena
- - o beijo da morenaaa
+![](https://media1.tenor.com/m/JuO0In1HqbMAAAAC/fin-fin-fin.gif)
+
 
  ### My Eyes - Travis Scott
 
@@ -92,3 +89,4 @@ Didn't buy the condo, it was smarter to lease
 And I bought some more ice 'cause I brought in the heat
 Made a cast of my dick, so she never gon' cheat
 If I gave you a day in my life or a day in my eyes, don't blink
+![](https://media1.tenor.com/m/ihv9g0578g0AAAAd/travis-scott-astroworld.gif)
